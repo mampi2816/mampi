@@ -32,10 +32,10 @@ Hey there, how you doing?
 
 
 ## Find me on -
-* [**Linkedin:** /varunswing](https://www.linkedin.com/in/mampi-bhattacharya-7162ab1bb/)
+* [**Linkedin:** /mampi2816](https://www.linkedin.com/in/mampi2816/)
 
-* [**Instagram:** /varunswing](https://www.instagram.com/bhattacharya.mampi/)
+* [**Instagram:** /mampi2816](https://www.instagram.com/bhattacharya.mampi/)
 
-* [**Twitter:** /varunswing](https://twitter.com/mampi2816/)
+* [**Twitter:** /mampi2816](https://twitter.com/mampi2816/)
 
-* [**Github:** /varunswing](https://github.com/mampi3575)
+* [**Github:** /mampi2816](https://github.com/mampi2816)
