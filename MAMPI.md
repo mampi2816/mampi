@@ -8,17 +8,17 @@ Hey there, how you doing?
 
 ## My Favourites
 
-* [**Song:** Chand Taare - I am kalam](https://youtu.be/iWNyT02qVSU)
+* [**Song:** Aap Ki Nazron Ne Samjha](https://www.youtube.com/watch?v=BWLYFc9MDFI)
 
-* [**Movie:** Good Will Hunting (1997)](https://www.imdb.com/title/tt0119217/)
+* [**Movie:** ASUR (2020)](https://www.youtube.com/watch?v=Tn1Hxo4GYVs)
 
-* [**Crush &hearts;:** Emma Watson](http://static.dnaindia.com/sites/default/files/2015/08/16/366097-emma-watson.jpg)
+* [**Crush &hearts;:** Darshan Raval](https://i2.cinestaan.com/image-bank/1500-1500/178001-179000/178973.jpg)
 
-* [**Actor:** Al Pacino](https://www.imdb.com/name/nm0000199/)
+* [**Actor:** Nawazuddin Siddiqui](https://www.imdb.com/name/nm1596350/?ref_=nv_sr_srsg_0)
 
 * [**Superhero:** Mom](#)
 
-* [**Singer:** Ed Sheeran](https://www.youtube.com/watch?v=JGwWNGJdvx8)
+* [**Singer:** Shankar Mahadevan](https://www.youtube.com/watch?v=-eFqg8JnohY)
 
 * [**Car:** 2020 Ford Mustang Shelby GT500](http://wallpapersdsc.net/wp-content/uploads/2015/11/177.jpg)
 
